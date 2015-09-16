@@ -12,3 +12,11 @@ Contact
  info@myshaadiwale.com
  +91-80-64041818
  +91-9916041038
+
+Socials
+
+Like us on Facebook - https://www.facebook.com/Myshaadiwale 
+Follow us on Instagram - https://instagram.com/myshaadiwale/
+
+Follow us on Twitter - https://twitter.com/myshaadiwale
+Follow us on Pinterest -  https://www.pinterest.com/myshaadiwale/
